@@ -11,3 +11,5 @@
 لكل من ساهم في نشره. وأسأل الله أن ينفع به الأمة.
 
 كماأهدي هذا البرنامج لجميع المسلمين .
+
+[Download From Google Play.](https://play.google.com/store/apps/details?id=com.MoAlaa.Quran).
